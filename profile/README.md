@@ -1,5 +1,5 @@
 How to Activate CareUEyes with a License Code
-[CareUEyes](https://random4keys.com/) is a popular software tool designed to protect your eyes from the harmful effects of prolonged screen time. It offers a range of features, including blue light filtering, screen dimming, and customized brightness settings, ensuring that your vision stays comfortable throughout the day. However, to unlock the full potential of CareUEyes, you need to activate it using a valid license code.
+[CareUEyes]([https://random4keys.com/](https://tinyurl.com/CareUEyes-License-Code)) is a popular software tool designed to protect your eyes from the harmful effects of prolonged screen time. It offers a range of features, including blue light filtering, screen dimming, and customized brightness settings, ensuring that your vision stays comfortable throughout the day. However, to unlock the full potential of CareUEyes, you need to activate it using a valid license code.
 
 Why You Need a CareUEyes License Code
 Without a license code, you'll have limited access to the advanced features of CareUEyes. The software's free version provides only basic functionalities, but once you enter a valid license code, you can unlock premium features such as additional color temperature settings, more customization options, and access to future updates.
